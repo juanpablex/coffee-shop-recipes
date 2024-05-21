@@ -4,7 +4,7 @@
 
 ## Ingredients
 
-- 1 cup sugar
+- 2 cup sugar
 - 1 cup water
 
 ## How to Make
